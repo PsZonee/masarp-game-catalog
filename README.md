@@ -1,0 +1,1 @@
+# masarp-game-catalog
